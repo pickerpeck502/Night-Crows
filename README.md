@@ -233,4 +233,4 @@ Night Crows is available as a complete free version with all features and update
 Download Night Crows now and embark on your medieval adventure today! Join a vibrant community and discover the magic and excitement that awaits.
 
 ---
-**Last updated:** 2026-11-01 20:56:08 UTC
+**Last updated:** 2026-11-02 00:13:30 UTC
